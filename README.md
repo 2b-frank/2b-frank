@@ -20,8 +20,6 @@
 <li><p style=""><strong>Games</strong>: FNaF series <em>(Clickteam era)</em>, Watch Dogs 1 and 2 <em>(Legacy doesn't exist to me)</em>, Rain World <em>(+ Downpour)</em>, Ultrakill, FAITH, Honkai: Star Rail <em>(don't ask about Genshin)</em>, Cult of the Lamb, Stardew Valley and Team Fortress 2 <em>(former Scout main)</em>!</p></li>
 <li><p style=""><strong>Other media</strong>: The True Lives of the Fabulous Killjoys <em>(+ National Anthem)</em>, Eddsworld, Gravity Falls, The Walten Files, The Mandela Catalogue and Land of Lustrous <em>(manga)</em>!</p></li></ul>
 <p style=""></p>
-<p style=""><span><mark>╰☆ <a href="https://en.pronouns.page/@2b_frank" rel="noopener noreferrer nofollow">Pronouns page link (you'll find my other socials links there!)</a></p>
-<p style=""></p>
 <p style="text-align:center;">⊹₊° ― Thanks for reading! °₊⊹</p></div>
 
 <!--
