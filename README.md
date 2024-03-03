@@ -18,6 +18,7 @@
 <li><p style="">DSMP stans (experience), </p></li>
 <li><p style="">Cry of Fear fans (the new fandom killed the joy I used to have from it in me), </p></li>
 <li><p style="">minors (what are you doing on an 18+ server?)</p></li></ul>
+<p style=""><em>Please note, I hide freely. It's usually not permanent and lasts up to a day, unless you're friends with some of the Fazgang's ex members. Or Toricakes.</em></p>
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/da11562b8251cacaa903562319c82045/4207386466d91023-5f/s1280x1920/57c4cefe9afc74fb3bf76e504f6d0bd1d1681c28.pnj" /> </p>
 <p style=""><span><mark>╰☆</mark></span> <strong><em>Main interests:</em></strong></p>
