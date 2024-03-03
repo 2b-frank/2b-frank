@@ -9,7 +9,7 @@
 <p align="center"> <img src="https://64.media.tumblr.com/da11562b8251cacaa903562319c82045/4207386466d91023-5f/s1280x1920/57c4cefe9afc74fb3bf76e504f6d0bd1d1681c28.pnj" /> </p>
 <p style=""></p><p style=""><strong><span><mark>╰☆</mark></span> <em>Pony Town statuses/icons:</em></strong></p>
 <ul><li><p style="">🟢 Online: if you ever see me with this, that's not me /j. I'd rarely ever use it, but if you see me doing so, read the next bullet point. </p></li>
-<li><p style="">🌙 Away: I use this icon because it's pretty, and I'm online and free to talk to :3 </p></li>
+<li><p style="">🌙 Away: More often than the previous one, I use this icon. Why? Because it's pretty! I'm online and free to talk to :3 </p></li>
 <li><p style="">⛔ Busy: Basically DNIUF. But I'm still here </p></li>
 <li><p style=""><span><mark>ᶻ 𝗓 𐰁</mark></span> If my avatar is asleep, that means I'm AFK!</p><p style=""></p></li></ul>
 <p style=""></p>
