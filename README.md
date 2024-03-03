@@ -35,7 +35,7 @@
 <p style=""><span><mark>╰☆</mark></span> <em>If something, this page will be expanded. I'm trying my best to go around just stating my diagnoses, and hope that everything written down here makes at least a littke bit of sense. /gen </em>
 <p align="center"> <img src="https://64.media.tumblr.com/0c79b82e966c9d035cd4b5fcdff48b80/a10e0853e767a58e-6d/s1280x1920/7499ca62cdedcdc3d4b139bc8cad3192471b3500.pnj" /> </p>
 <p align="center">⊹₊° ― Thanks for reading! °₊⊹</p></div>
-<p align="center"> <img src="https://media1.tenor.com/m/k7BsVcBTabcAAAAC/fairly-local.gif"/> </p>
+<p align="center"> <img src="https://media1.tenor.com/m/Vy3nFaneSyEAAAAC/twenty-one-pilots-flashlight.gif"/> </p>
 <p align="center"> ◈ Dividers used: https://www.tumblr.com/cafekitsune ◈ </p>
 <!--
 **2b-frank/2b-frank** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
