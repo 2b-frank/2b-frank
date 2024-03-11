@@ -5,7 +5,7 @@
 <div class="sc-1ye87qi-0 bCBphS"><p align="center">⊹₊ <em>I am Russian and a legal adult, please interact in RU/EN/DEU</em> ₊⊹</p>
 <p align="center"> <img src="https://64.media.tumblr.com/0c79b82e966c9d035cd4b5fcdff48b80/a10e0853e767a58e-6d/s1280x1920/7499ca62cdedcdc3d4b139bc8cad3192471b3500.pnj" /> </p>
 <p style=""><em>This page just holds some info a curious Pony Town player might want to know about me!</em></p>
-<p style=""><em>(if you're not from PT, I have NO IDEA how you found this.)</em></p>
+<p style=""><em>(You may have come from our Carrd, which I left elsewhere. If so, this page won't be of any value to you...)</em></p>
 <p align="center"> <img src="https://64.media.tumblr.com/da11562b8251cacaa903562319c82045/4207386466d91023-5f/s1280x1920/57c4cefe9afc74fb3bf76e504f6d0bd1d1681c28.pnj" /> </p>
 <p style=""></p><p style=""><strong><span><mark>╰☆</mark></span> <em>Pony Town statuses/icons:</em></strong></p>
 <ul><li><p style="">🟢 Online: if you ever see me with this, that's not me /j. I'd rarely ever use it, but if you see me doing so, read the next bullet point. </p></li>
