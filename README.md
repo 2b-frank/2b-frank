@@ -27,7 +27,7 @@
 <p style=""><span><mark>╰☆</mark></span> <strong><em>Main interests</strong>(current fixations are <strong>in bold</strong>)<strong>:</strong></em></p>
 <ul><li><p style=""><em><strong>Music</strong></em>: <strong>My Chemical Romance</strong>, <strong>Twenty One Pilots</strong>, Hollywood Undead, Bring Me the Horizon, Machine Gun Kelly, Eminem, Yungblud... <em>but I can listen to basically anything :3</em></p></li>
 <li><p style=""><em><strong>Games</strong></em>: <strong>FNaF series</strong> <em>(Clickteam era)</em>, Watch Dogs 1 and 2 <em>(Legacy doesn't exist to me)</em>, <strong>Rain World <em>(+ Downpour)</em></strong>, <strong>Ultrakill</strong>, <strong>FAITH</strong>, Honkai: Star Rail <em>(don't ask about Genshin)</em>, Cult of the Lamb, Stardew Valley and Team Fortress 2 <em>(former Scout main)</em>!</p></li>
-<li><p style=""><em><strong>Other media</strong></em>: <strong>The True Lives of the Fabulous Killjoys</strong> <em>(+ National Anthem)</em>, Eddsworld, Gravity Falls, The Walten Files, The Mandela Catalogue and Land of Lustrous <em>(manga)</em>!</p></li></ul>
+<li><p style=""><em><strong>Other media</strong></em>: <strong>The True Lives of the Fabulous Killjoys</strong> <em>(+ National Anthem)</em>, <strong>Spooky Month</strong>, <strong>Eddsworld</strong>, Gravity Falls, The Walten Files and Land of Lustrous <em>(manga)</em>!</p></li></ul>
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/da11562b8251cacaa903562319c82045/4207386466d91023-5f/s1280x1920/57c4cefe9afc74fb3bf76e504f6d0bd1d1681c28.pnj" /> </p>
 <p style=""><span><mark>╰☆</mark></span> <strong><em>Also,</em></strong> I'm the worst characters ever kinnie. Nico, V2, peepaw Afton and Val Velocity are just some of the examples! /silly</p>
