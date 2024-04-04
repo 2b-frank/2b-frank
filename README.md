@@ -18,6 +18,7 @@
 <ul><li><p style="">basic criteria, but also: </p></li>
 <li><p style="">DSMP stans (experience), </p></li>
 <li><p style="">Cry of Fear fans (the new fandom killed the joy I used to have from it in me), </p></li>
+<li><p style="">PsychoCuties fans (the project is romanticising abuse and the creator is pro loli/shotacon)</p></li>
 <li><p style="">anti self-shipping/OCxCanon (let people have fun, god dammit!)</p></li>
 <li><p style="">minors (what are you doing on an 18+ server anyway?)</p></li></ul>
 <p style=""><em>Please note, I hide freely. It's usually not permanent and lasts up to a day, unless you're affiliated with someone who hurt me or my friends. Especially with Toricakes.</em></p>
