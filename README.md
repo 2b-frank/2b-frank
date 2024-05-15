@@ -17,21 +17,21 @@
 <p style=""><span><mark>╰☆</mark></span> <strong><em>DNI:</em></strong> </p>
 <ul><li><p style="">basic criteria, but also: </p></li>
 <li><p style="">DSMP stans (experience), </p></li>
-<li><p style="">Cry of Fear fans (the new fandom killed the joy I used to have from it in me), </p></li>
 <li><p style="">PsychoCuties fans (the project is romanticising abuse and the creator is pro loli/shotacon)</p></li>
 <li><p style="">anti self-shipping/OCxCanon (let people have fun, god dammit!)</p></li>
 <li><p style="">minors (what are you doing on an 18+ server anyway?)</p></li></ul>
-<p style=""><em>Please note, I hide freely. It's usually not permanent and lasts up to a day, unless you're affiliated with someone who hurt me or my friends. Especially with Toricakes.</em></p>
+<p style=""><em>Hannibal, Cry of Fear, Boyfriend to Death and the likes of it, Homestuck, Steven Universe, Hazbin Hotel and Helluva Boss fans are on really thin fucking ice. JSYK, nothing personal, it's either the medium itself or the generally seen fandom folks that give me the ick, plus experience.</em></p>
+<p style=""><em>Please note, I hide freely. It's usually not permanent and lasts up to a day, unless you're affiliated with someone who hurt me or my friends. <strong>Especially with Toricakes, lovecats (sys) or The Rainbow Connection (sys).</strong></em></p>
 <p style=""><em>Do not blatantly copy my skins please, every person copying them without my permission will be hidden and put on Fazgang's wall of shame :3 If you want to take inspiration, just ask; most of my skins are cosplays anyway.</em></p>
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/da11562b8251cacaa903562319c82045/4207386466d91023-5f/s1280x1920/57c4cefe9afc74fb3bf76e504f6d0bd1d1681c28.pnj" /> </p>
 <p style=""><span><mark>╰☆</mark></span> <strong><em>Main interests</strong>(current fixations are <strong>in bold</strong>)<strong>:</strong></em></p>
-<ul><li><p style=""><em><strong>Music</strong></em>: <strong>My Chemical Romance</strong>, <strong>Twenty One Pilots</strong>, Hollywood Undead, Bring Me the Horizon, Machine Gun Kelly, Eminem, Yungblud... <em>but I can listen to basically anything :3</em></p></li>
-<li><p style=""><em><strong>Games</strong></em>: <strong>FNaF series</strong> <em>(Clickteam era)</em>, Watch Dogs 1 and 2 <em>(Legacy doesn't exist to me)</em>, <strong>Rain World <em>(+ Downpour)</em></strong>, <strong>Ultrakill</strong>, <strong>FAITH</strong>, Honkai: Star Rail <em>(don't ask about Genshin)</em>, Cult of the Lamb, Stardew Valley and Team Fortress 2 <em>(former Scout main)</em>!</p></li>
+<ul><li><p style=""><em><strong>Music</strong></em>: <strong>My Chemical Romance</strong>, <strong>Twenty One Pilots</strong>, Hollywood Undead, Bring Me the Horizon, Machine Gun Kelly, Eminem, Yungblud, DK... <em>but I can listen to basically anything :3</em></p></li>
+<li><p style=""><em><strong>Games</strong></em>: <strong>FNaF series</strong> <em>(Clickteam era)</em>, Watch Dogs 1 and 2 <em>(Legacy doesn't exist to me)</em>, <strong>Rain World <em>(+ Downpour)</em></strong>, <strong>Ultrakill</strong>, FAITH, Honkai: Star Rail <em>(don't ask about Genshin)</em>, Cult of the Lamb, Stardew Valley and Team Fortress 2 <em>(former Scout main)</em>!</p></li>
 <li><p style=""><em><strong>Other media</strong></em>: <strong>The True Lives of the Fabulous Killjoys</strong> <em>(+ National Anthem)</em>, <strong>Spooky Month</strong>, <strong>Eddsworld</strong>, Gravity Falls, The Walten Files and Land of Lustrous <em>(manga)</em>!</p></li></ul>
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/da11562b8251cacaa903562319c82045/4207386466d91023-5f/s1280x1920/57c4cefe9afc74fb3bf76e504f6d0bd1d1681c28.pnj" /> </p>
-<p style=""><span><mark>╰☆</mark></span> <strong><em>Also,</em></strong> I'm the worst characters ever kinnie. Nico, V2, peepaw Afton and Val Velocity are just some of the examples! /silly</p>
+<p style=""><span><mark>╰☆</mark></span> <strong><em>Also,</em></strong> I'm the worst characters ever kinnie. Blurryface, V2, peepaw Afton and Val Velocity are just some of the examples! /silly</p>
 <p style=""><span><mark>╰☆</mark></span> <strong><em>Also also,</em></strong> I'm insensitive. That's <em>unintentional</em>, I cannot control it. So if I offend you by accident, don't start drama, stay silent or play guessing games with me, instead just be blunt and point out my mistake. People won't learn if they don't know what to learn from, yk? /nm</p>
 <p style=""><span><mark>╰☆</mark></span> <strong><em>Moreover,</em></strong> I myself am blunt and frank(this name's ain't chosen for no reason, huh). I <em>will</em> tell you to fuck off if you annoy me or my friends, and I <em>won't</em> just stand there if you're being offensive towards them - I can take a lot for myself, but not when it comes to people I hold dear.</p>
 <p style=""><span><mark>╰☆</mark></span> I may be weird, I <em>will</em> be weird. Not in a freaky, mean or creepy way, I just make very little sense sometimes. That happens, I have a few screws loose and my English is funky at times... /silly </p>
