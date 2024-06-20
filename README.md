@@ -21,7 +21,7 @@
 <li><p style="">anti self-shipping/OCxCanon (let people have fun, god dammit!)</p></li>
 <li><p style="">minors (what are you doing on an 18+ server anyway?)</p></li></ul>
 <p style=""><em>Hannibal, Cry of Fear, Boyfriend to Death and the likes of it, Homestuck, Steven Universe, Hazbin Hotel and Helluva Boss fans are on really thin fucking ice. JSYK, nothing personal, it's either the medium itself or the generally seen fandom folks that give me the ick, plus experience.</em></p>
-<p style=""><em>Please note, I hide freely. It's usually not permanent and lasts up to a day, unless you're affiliated with someone who hurt me or my friends. <strong>Especially with Toricakes, lovecats (sys) or The Rainbow Connection (sys).</strong></em></p>
+<p style=""><em>Please note, I hide freely. It's usually not permanent and lasts up to a day, unless you're affiliated with someone who hurt me or my friends. <strong>Especially with Vanessa/Joy, lovecats (sys) or InfiniteStar/InfyFish.</strong></em></p>
 <p style=""><em>Do not blatantly copy my skins please, every person copying them without my permission will be hidden and put on Fazgang's wall of shame :3 If you want to take inspiration, just ask; most of my skins are cosplays anyway.</em></p>
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/da11562b8251cacaa903562319c82045/4207386466d91023-5f/s1280x1920/57c4cefe9afc74fb3bf76e504f6d0bd1d1681c28.pnj" /> </p>
