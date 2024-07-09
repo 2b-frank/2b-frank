@@ -2,10 +2,10 @@
 <p style=""></p>
 <div class="sc-1ye87qi-0 bCBphS"><p align="center">⊹₊° ― Hello there! My name is Frank! °₊⊹</p>
 <p align="center">｡◈ I go by any pronouns :3 <span><mark>◈｡˚</mark></span></p>    
-<div class="sc-1ye87qi-0 bCBphS"><p align="center">⊹₊ <em>I am Russian and a legal adult, please interact in RU/EN/DEU</em> ₊⊹</p>
+<div class="sc-1ye87qi-0 bCBphS"><p align="center">⊹₊ <em>I am a legal adult, please interact in EN/DEU/RU</em> ₊⊹</p>
 <p align="center"> <img src="https://64.media.tumblr.com/0c79b82e966c9d035cd4b5fcdff48b80/a10e0853e767a58e-6d/s1280x1920/7499ca62cdedcdc3d4b139bc8cad3192471b3500.pnj" /> </p>
 <p style=""><em>This page just holds some info a curious Pony Town player might want to know about me!</em></p>
-<p style=""><em>(You may have come from our Toyhouse, which I left elsewhere. If so, this page won't be of any value to you...)</em></p>
+<p style=""><em>(You may have come from the Toyhouse, which I left elsewhere. If so, this page won't be of any value to you...)</em></p>
 <p align="center"> <img src="https://64.media.tumblr.com/da11562b8251cacaa903562319c82045/4207386466d91023-5f/s1280x1920/57c4cefe9afc74fb3bf76e504f6d0bd1d1681c28.pnj" /> </p>
 <p style=""></p><p style=""><strong><span><mark>╰☆</mark></span> <em>Pony Town statuses/icons:</em></strong></p>
 <ul><li><p style="">🟢 Online: if you ever see me with this, that's not me /j. I'd rarely ever use it, but if you see me doing so, read the next bullet point. </p></li>
@@ -15,20 +15,17 @@
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/da11562b8251cacaa903562319c82045/4207386466d91023-5f/s1280x1920/57c4cefe9afc74fb3bf76e504f6d0bd1d1681c28.pnj" /> </p>
 <p style=""><span><mark>╰☆</mark></span> <strong><em>DNI:</em></strong> </p>
-<ul><li><p style="">basic criteria, but also: </p></li>
-<li><p style="">DSMP stans (experience), </p></li>
+<ul><li><p style="">basic DNI criteria, but also: </p></li>
 <li><p style="">PsychoCuties fans (the project is romanticising abuse and the creator is pro loli/shotacon)</p></li>
-<li><p style="">anti self-shipping/OCxCanon (let people have fun, god dammit!)</p></li>
-<li><p style="">minors (what are you doing on an 18+ server anyway?)</p></li></ul>
-<p style=""><em>Hannibal, Cry of Fear, Boyfriend to Death and the likes of it, Homestuck, Steven Universe, Hazbin Hotel and Helluva Boss fans are on really thin fucking ice. JSYK, nothing personal, it's either the medium itself or the generally seen fandom folks that give me the ick, plus experience.</em></p>
-<p style=""><em>Please note, I hide freely. It's usually not permanent and lasts up to a day, unless you're affiliated with someone who hurt me or my friends. <strong>Especially with Vanessa/Joy, lovecats (sys) or InfiniteStar/InfyFish.</strong></em></p>
-<p style=""><em>Do not blatantly copy my skins please, every person copying them without my permission will be hidden and put on Fazgang's wall of shame :3 If you want to take inspiration, just ask; most of my skins are cosplays anyway.</em></p>
+<p style=""><em>Hannibal, Cry of Fear, Boyfriend to Death and the likes of it, Homestuck, Steven Universe, Call of Duty, Hazbin Hotel and Helluva Boss fans are on really thin fucking ice. JSYK, nothing personal, it's either the medium itself or the generally seen fandom folks that give me the ick, and/or personal experience.</em></p>
+<p style=""><em>Please note, I hide freely. It's usually not permanent and lasts up to a day, unless you're affiliated with someone who hurt me or my friends.</em></p>
+<p style=""><em>Do not blatantly copy my skins please, every person copying them without my permission will be hidden and put on the friends' server's wall of shame :3 If you want to take inspiration, just ask; most of my skins are cosplays anyway.</em></p>
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/da11562b8251cacaa903562319c82045/4207386466d91023-5f/s1280x1920/57c4cefe9afc74fb3bf76e504f6d0bd1d1681c28.pnj" /> </p>
 <p style=""><span><mark>╰☆</mark></span> <strong><em>Main interests</strong>(current fixations are <strong>in bold</strong>)<strong>:</strong></em></p>
-<ul><li><p style=""><em><strong>Music</strong></em>: <strong>My Chemical Romance</strong>, <strong>Twenty One Pilots</strong>, Hollywood Undead, Bring Me the Horizon, Machine Gun Kelly, Eminem, Yungblud, DK... <em>but I can listen to basically anything :3</em></p></li>
-<li><p style=""><em><strong>Games</strong></em>: <strong>FNaF series</strong> <em>(Clickteam era)</em>, Watch Dogs 1 and 2 <em>(Legacy doesn't exist to me)</em>, <strong>Rain World <em>(+ Downpour)</em></strong>, <strong>Ultrakill</strong>, FAITH, Honkai: Star Rail <em>(don't ask about Genshin)</em>, Cult of the Lamb, Stardew Valley and Team Fortress 2 <em>(former Scout main)</em>!</p></li>
-<li><p style=""><em><strong>Other media</strong></em>: <strong>The True Lives of the Fabulous Killjoys</strong> <em>(+ National Anthem)</em>, <strong>Spooky Month</strong>, <strong>Eddsworld</strong>, Gravity Falls, The Walten Files and Land of Lustrous <em>(manga)</em>!</p></li></ul>
+<ul><li><p style=""><em><strong>Music</strong></em>: My Chemical Romance, <strong>Twenty One Pilots</strong>, Hollywood Undead, Bring Me the Horizon, Machine Gun Kelly, Eminem, Yungblud, DK... <em>but I can listen to basically anything :3</em></p></li>
+<li><p style=""><em><strong>Games</strong></em>: FNaF series <em>(Clickteam era)</em>, <strong>Watch Dogs 1 and 2</strong> <em>(Legacy doesn't exist to me)</em>, <strong>Rain World <em>(+ Downpour)</em></strong>, Ultrakill, FAITH, Honkai: Star Rail <em>(don't ask about Genshin)</em>, Cult of the Lamb, Stardew Valley and Team Fortress 2 <em>(former Scout main)</em>!</p></li>
+<li><p style=""><em><strong>Other media</strong></em>: <strong>The True Lives of the Fabulous Killjoys</strong> <em>(+ National Anthem)</em>, Spooky Month, Eddsworld, Gravity Falls, The Walten Files and Land of Lustrous <em>(manga)</em>!</p></li></ul>
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/da11562b8251cacaa903562319c82045/4207386466d91023-5f/s1280x1920/57c4cefe9afc74fb3bf76e504f6d0bd1d1681c28.pnj" /> </p>
 <p style=""><span><mark>╰☆</mark></span> <strong><em>Also,</em></strong> I'm the worst characters ever kinnie. Blurryface, V2, peepaw Afton and Val Velocity are just some of the examples! /silly</p>
@@ -40,17 +37,3 @@
 <p align="center">⊹₊° ― Thanks for reading! °₊⊹</p></div>
 <p align="center"> <img src="https://media1.tenor.com/m/Vy3nFaneSyEAAAAC/twenty-one-pilots-flashlight.gif"/> </p>
 <p align="center"> ◈ Dividers used: https://www.tumblr.com/cafekitsune ◈ </p>
-<!--
-**2b-frank/2b-frank** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
