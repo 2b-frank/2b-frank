@@ -17,6 +17,7 @@
 <p style=""><span><mark>╰☆</mark></span> <strong><em>DNI:</em></strong> </p>
 <ul><li><p style="">basic DNI criteria, but also: </p></li>
 <li><p style="">PsychoCuties fans (the project is romanticising abuse and the creator is pro loli/shotacon)</p></li>
+<li><p style="">Non-traumageinc "systems", radqueers, transIDs, and other rednecks and bigots in general</p></li>
 <p style=""><em>Hannibal, Cry of Fear, Boyfriend to Death and the likes of it, Homestuck, Steven Universe, Call of Duty, Hazbin Hotel and Helluva Boss fans are on really thin fucking ice. JSYK, nothing personal, it's either the medium itself or the generally seen fandom folks that give me the ick, and/or personal experience.</em></p>
 <p style=""><em>Please note, I hide freely. It's usually not permanent and lasts up to a day, unless you're affiliated with someone who hurt me or my friends.</em></p>
 <p style=""><em>Do not blatantly copy my skins please, every person copying them without my permission will be hidden and put on the friends' server's wall of shame :3 If you want to take inspiration, just ask; most of my skins are cosplays anyway.</em></p>
