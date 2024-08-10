@@ -16,7 +16,7 @@
 <p align="center"> <img src="https://64.media.tumblr.com/da11562b8251cacaa903562319c82045/4207386466d91023-5f/s1280x1920/57c4cefe9afc74fb3bf76e504f6d0bd1d1681c28.pnj" /> </p>
 <p style=""><span><mark>╰☆</mark></span> <strong><em>DNI:</em></strong> </p>
 <ul><li><p style="">Minors</p></li>
-<li><p style="">C.AI users and other generative AI fans. Mutuals are an exception because I know they don't use it to brainrot levels LMAO. Also AI art should fucking die <3</p></li>
+<li><p style="">C.AI users and other generative AI fans. Mutuals are an exception because I know they don't use it to brainrot levels LMAO. Also AI "art" should fucking die <3</p></li>
 <li><p style="">Non-traumageinc "systems", radqueers(being a kiddie diddler is not an identity please and thanks!), transIDs (like transharmed or transbully), and other rednecks and bigots in general</p></li></ul>
 <p style=""><em>I hide freely. It's usually not permanent and lasts up to a day, unless you're affiliated with someone who hurt me or my friends. I won't unhide you LOL</em></p>
 <p style=""><em>Do not blatantly copy my skins please, every person copying them without my permission will be hidden and put on the wall of shame :3 If you want to take inspiration, just ask; most of my skins are cosplays anyway.</em></p>
