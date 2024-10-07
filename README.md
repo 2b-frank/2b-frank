@@ -11,6 +11,7 @@
 <ul><li><p style="">🟢 Online: if you ever see me with this, that's not me /j. I'd rarely ever use it, but if you see me doing so, read the next bullet point. </p></li>
 <li><p style="">🌙 Away: More often than the previous one, I use this icon. Why? Because it's pretty! I'm online and free to talk to :3 </p></li>
 <li><p style="">⛔ Busy: Basically DNIUF, but I'm still here. HELLO, DUMBFUCKS THAT GET MAD AT ME FOR ASKING NOT TO INTERACT, READ THIS <3</p></li>
+<li><p style="">🎭 Looking for roleplay: Just being in-character!</p></li>
 <li><p style=""><span>ᶻ 𝗓 𐰁</span> If my avatar is asleep, that means I'm AFK</p><p style=""></p></li></ul>
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/da11562b8251cacaa903562319c82045/4207386466d91023-5f/s1280x1920/57c4cefe9afc74fb3bf76e504f6d0bd1d1681c28.pnj" /> </p>
