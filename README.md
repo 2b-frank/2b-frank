@@ -24,7 +24,7 @@
 <p style=""><span>╰☆</span> <strong><em>Main interests</strong>(current strong interests are <strong>in bold</strong>)<strong>:</strong></em></p>
 <ul><li><p style=""><em><strong>Music</strong></em>: My Chemical Romance, <strong>Twenty One Pilots</strong>, Hollywood Undead, <strong>Bring Me the Horizon</strong>, <strong>Machine Gun Kelly</strong>, Eminem, <strong>Yungblud</strong>, DK... <em>but I can listen to basically anything :3</em></p></li>
 <li><p style=""><em><strong>Games</strong></em>: <strong>FNaF series <em>(Clickteam era)</em></strong>, Watch Dogs 1 and 2 <em>(Legacy doesn't exist to me)</em>, <strong>Rain World <em>(+ Downpour)</em></strong>, Ultrakill, FAITH, Honkai: Star Rail <em>(don't ask about Genshin)</em>, Cult of the Lamb, Stardew Valley and Team Fortress 2 <em>(former Scout main)</em>!</p></li>
-<li><p style=""><em><strong>Other media</strong></em>: The True Lives of the Fabulous Killjoys <em>(+ National Anthem)</em>, Spooky Month, Eddsworld, Gravity Falls, The Walten Files and Land of Lustrous <em>(manga)</em>!</p></li></ul>
+<li><p style=""><em><strong>Other media</strong></em>: <strong>Mystery Skulls Animated</strong>, The True Lives of the Fabulous Killjoys <em>(+ National Anthem)</em>, Spooky Month, Eddsworld, Gravity Falls, The Walten Files and Land of Lustrous <em>(manga)</em>!</p></li></ul>
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/da11562b8251cacaa903562319c82045/4207386466d91023-5f/s1280x1920/57c4cefe9afc74fb3bf76e504f6d0bd1d1681c28.pnj" /> </p>
 <p style=""><span>╰☆</span> <strong><em>Also,</em></strong> I'm the worst characters ever kinnie. Blurryface, V2, peepaw Afton and Val Velocity are just some of the examples!</p>
