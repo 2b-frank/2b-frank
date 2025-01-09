@@ -28,7 +28,6 @@
 <p align="center"> <img src="https://64.media.tumblr.com/5a3bc0b36b425812bf05f3c49e23fd06/89bc94260e59e762-e5/s2048x3072/a0572167bdecd2e27e7fca5aef2aa46f522d3d36.pnj" /> </p>
 <p style=""><span>╰☆</span> <strong><em>Also,</em></strong> I'm blunt and frank(this name's ain't chosen for no reason, huh). Don't expect an apology if I just so happen to offend you with my personal opinion.</p>
 <p style=""><span>╰☆</span> <strong><em>BTW,</em></strong> if you whisper me just to bitch about some other player I interacted with once, don't expect me to care. I'm a nobody to you and you're a nobody to me.</p>
-<p style=""><span>╰☆</span> <strong><em>Do not</em></strong> assume I ship something just because I'm sitting with friends or people I like. You shouldn't care about my fiction preferences anyway.</p>
 <p style=""><span>╰☆</span> <strong><em>If you</em></strong> think harassment over fiction is warranted or you actively partake in it, may whatever you wish onto others happen to you.</p>
 <p align="center"><em>If something, this page will be expanded.</em>
 <p align="center"> <img src="https://64.media.tumblr.com/34032256aefac12dbe5c34c263bf6cef/89bc94260e59e762-81/s2048x3072/22b96aa8e49d7206c45803507fdc028c67028bc4.pnj" /> </p>
