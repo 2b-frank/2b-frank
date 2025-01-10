@@ -24,7 +24,6 @@
 <li><p style=""><em><strong>Games</strong></em>: <strong>FNaF series <em>(Clickteam era)</em></strong>, Watch Dogs 1 and 2 <em>(Legacy doesn't exist to me)</em>, Rain World <em>(+ Downpour)</em>, Ultrakill, FAITH, Honkai: Star Rail <em>(don't ask about Genshin)</em>, Cult of the Lamb, Stardew Valley and Team Fortress 2 <em>(former Scout main)</em>!</p></li>
 <li><p style=""><em><strong>Series, LPs, Podcasts</strong></em>: <strong>Mystery Skulls Animated</strong>, <strong>MrLololoshka's Minecraft series</strong>, <strong>Welcome to Night Vale</strong>, Spooky Month, Eddsworld, Gravity Falls, The Walten Files!</p></li>
 <li><p style=""><em><strong>Other media</strong></em>: The True Lives of the Fabulous Killjoys <em>(California + National Anthem)</em>, Land of Lustrous <em>(manga)</em>!</p></li></ul>
-<p style=""><span>╰☆</span>If you come up to me as a skin from any of these fandoms, don't expect I'll acknowledge you. 99% of the time I'm already chilling with my friends.</p>
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/5a3bc0b36b425812bf05f3c49e23fd06/89bc94260e59e762-e5/s2048x3072/a0572167bdecd2e27e7fca5aef2aa46f522d3d36.pnj" /> </p>
 <p style=""><span>╰☆</span> <strong><em>Also,</em></strong> I'm blunt and frank(this name's ain't chosen for no reason, huh). Don't expect an apology if I just so happen to offend you with my personal opinion.</p>
