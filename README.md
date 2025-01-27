@@ -17,6 +17,7 @@
 <p style=""><span>╰☆</span> <strong><em>DNI:</em></strong> </p>
 <ul><li><p style="">none!</li></ul>
 <p style=""><em>I hide freely, it's absolutely nothing personal. It's temporary more often than not, and lasts up to a day. If it isn't, I won't unhide you LOL</em></p>
+<p style=""><em>Respect your own DNI tho.</em></p>
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/2ca023e483677345a8ebc80395317a78/91cd9f8a617cc37f-09/s2048x3072/6e3192184611e80d82519ac966cb20c2e0dff7dd.pnj" /> </p>
 <p style=""><span>╰☆</span> <strong><em>Main interests</strong>(current strong interests are <strong>in bold</strong>)<strong>:</strong></em></p>
@@ -27,11 +28,11 @@
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/2ca023e483677345a8ebc80395317a78/91cd9f8a617cc37f-09/s2048x3072/6e3192184611e80d82519ac966cb20c2e0dff7dd.pnj" /> </p>
 <p style=""><span>╰☆</span> <strong><em>I felt like I needed to add this,</em></strong> but if I haven't responded to your compliment, I'm either flustered or just forgot! I never miss whispers, but I do have problems with remembering to reply. I haven't gotten much compliments in my early life, so all of your kind words are very valuable to me. :)</p>
-<p style=""><span>╰☆</span> <strong><em>Also,</em></strong> I'm blunt and frank(this name's ain't chosen for no reason, huh). Don't expect an apology if I just so happen to offend you with my personal opinion.</p>
-<p style=""><span>╰☆</span> <strong><em>BTW,</em></strong> if you whisper me just to complain about some other player I interacted with once, don't expect me to care. I'm a nobody to you and you're a nobody to me.</p>
-<p style=""><span>╰☆</span> <strong><em>If you</em></strong> think harassment over fiction is warranted or you actively partake in it, may whatever you wish onto others happen to you.</p>
-<p align="center"><em>If something, this page will be expanded.</em>
+<p style=""><span>╰☆</span> <strong><em>I'm a meanie</em></strong> and have mean opinions about voids & the bread line.</p>
+<p style=""><span>╰☆</span> <strong><em>"Fiction affects reality"</em></strong> go read a book about a smart guy who thinks then. I'm anti harassment, don't like - don't eat that cactus, block & move on.</p>
+<p style=""><span>╰☆</span> <strong><em>I THRIVE IN NEGATIVITY,</em></strong> so if you think you kicked my ass by whispering death threats or being a dick in public, think again. This may have turned me on /hj</em>
+  <p align="center"><em>If something, this page will be expanded.</em>
 <p align="center"> <img src="https://64.media.tumblr.com/ee93fbf17ce48e23aef3928a2b801a44/91cd9f8a617cc37f-c4/s2048x3072/caec05e6a2c78dc05f8b4c7c6ee685f91df2ddc5.pnj" /> </p>
 <p align="center">⊹₊° ― Thanks for reading! °₊⊹</p></div>
-<p align="center"> <img src="https://media1.tenor.com/m/b4CosgNW804AAAAd/wtnv.gif"/> </p>
+<p align="center"> <img src="https://media1.tenor.com/m/-H_uo2Etod0AAAAd/horse-run.gif"/> </p>
 <p align="center"> ◈ Dividers by: https://www.tumblr.com/2b--frank (me) ◈ </p>
