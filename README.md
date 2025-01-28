@@ -28,9 +28,9 @@
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/2ca023e483677345a8ebc80395317a78/91cd9f8a617cc37f-09/s2048x3072/6e3192184611e80d82519ac966cb20c2e0dff7dd.pnj" /> </p>
 <p style=""><span>╰☆</span> <strong><em>I felt like I needed to add this,</em></strong> but if I haven't responded to your compliment, I'm either flustered or just forgot! I never miss whispers, but I do have problems with remembering to reply. All of your kind words are very valuable to me. :)</p>
-<p style=""><span>╰☆</span> <strong><em>I'm a meanie</em></strong> and have mean opinions about voids & the bread line. Also I literally don't care if I accidentally interacted with someone you don't like, stop.</p>
+<p style=""><span>╰☆</span> <strong><em>Don't like me?</em></strong> Block and move on. Don't bother, I really don't care why you dislike me, or that you do at all.</p>
 <p style=""><span>╰☆</span> <strong><em>"Fiction affects reality"</em></strong> go read a book about a smart guy who thinks then.</p>
-<p style=""><span>╰☆</span> <strong><em>I THRIVE IN NEGATIVITY,</em></strong> so if you think you kicked my ass by whispering death threats, think again. This may have turned me on.</em>
+<p style=""><span>╰☆</span> <strong><em>I'm anti harassment.</em></strong> Being nice or able to move on makes your life easier. Educate yourselves before harassing others for fiction.</em>
   <p align="center"><em>If something, this page will be expanded.</em>
 <p align="center"> <img src="https://64.media.tumblr.com/ee93fbf17ce48e23aef3928a2b801a44/91cd9f8a617cc37f-c4/s2048x3072/caec05e6a2c78dc05f8b4c7c6ee685f91df2ddc5.pnj" /> </p>
 <p align="center">⊹₊° ― Thanks for reading! °₊⊹</p></div>
