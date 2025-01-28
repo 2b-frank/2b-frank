@@ -20,17 +20,17 @@
 <p style=""><em>Respect your own DNI tho.</em></p>
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/2ca023e483677345a8ebc80395317a78/91cd9f8a617cc37f-09/s2048x3072/6e3192184611e80d82519ac966cb20c2e0dff7dd.pnj" /> </p>
+<p style=""><span>╰☆</span> <strong><em>I felt like I needed to add this,</em></strong> but if I haven't responded to your compliment, I'm either flustered or just forgot! I never miss whispers, but I do have problems with remembering to reply. All of your kind words are very valuable to me. :)</p>
+<p style=""><span>╰☆</span> <strong><em>Don't like me?</em></strong> Block and move on. Don't bother, I really don't care why you dislike me, or that you do at all.</p>
+<p style=""><span>╰☆</span> <strong><em>I'm anti harassment.</em></strong> Being nice or able to move on makes your life easier. Educate yourselves before harassing others for fiction.</em>
+<p align="center"> <img src="https://64.media.tumblr.com/2ca023e483677345a8ebc80395317a78/91cd9f8a617cc37f-09/s2048x3072/6e3192184611e80d82519ac966cb20c2e0dff7dd.pnj" /> </p>
 <p style=""><span>╰☆</span> <strong><em>Main interests</strong>(current strong interests are <strong>in bold</strong>)<strong>:</strong></em></p>
 <ul><li><p style=""><em><strong>Music</strong></em>: My Chemical Romance, <strong>Twenty One Pilots</strong>, Hollywood Undead, Bring Me the Horizon, Machine Gun Kelly, Eminem, Yungblud, DK... <em>but I can listen to basically anything :3</em></p></li>
 <li><p style=""><em><strong>Games</strong></em>: <strong>FNaF series <em>(Clickteam era)</em></strong>, Watch Dogs 1 and 2 <em>(Legacy doesn't exist to me)</em>, Rain World <em>(+ Downpour)</em>, Ultrakill, FAITH, Honkai: Star Rail <em>(don't ask about Genshin)</em>, Cult of the Lamb, Stardew Valley and Team Fortress 2 <em>(former Scout main)</em>!</p></li>
 <li><p style=""><em><strong>Series, LPs, Podcasts</strong></em>: <strong>Mystery Skulls Animated</strong>, <strong>MrLololoshka's Minecraft series</strong>, <strong>Welcome to Night Vale</strong>, Spooky Month, Eddsworld, Gravity Falls, The Walten Files!</p></li>
 <li><p style=""><em><strong>Other media</strong></em>: The True Lives of the Fabulous Killjoys <em>(California + National Anthem)</em>, Land of Lustrous <em>(manga)</em>!</p></li></ul>
 <p style=""></p>
-<p align="center"> <img src="https://64.media.tumblr.com/2ca023e483677345a8ebc80395317a78/91cd9f8a617cc37f-09/s2048x3072/6e3192184611e80d82519ac966cb20c2e0dff7dd.pnj" /> </p>
-<p style=""><span>╰☆</span> <strong><em>I felt like I needed to add this,</em></strong> but if I haven't responded to your compliment, I'm either flustered or just forgot! I never miss whispers, but I do have problems with remembering to reply. All of your kind words are very valuable to me. :)</p>
-<p style=""><span>╰☆</span> <strong><em>Don't like me?</em></strong> Block and move on. Don't bother, I really don't care why you dislike me, or that you do at all.</p>
-<p style=""><span>╰☆</span> <strong><em>I'm anti harassment.</em></strong> Being nice or able to move on makes your life easier. Educate yourselves before harassing others for fiction.</em>
-  <p align="center"><em>If something, this page will be expanded.</em>
+<p align="center"><em>If something, this page will be expanded.</em>
 <p align="center"> <img src="https://64.media.tumblr.com/ee93fbf17ce48e23aef3928a2b801a44/91cd9f8a617cc37f-c4/s2048x3072/caec05e6a2c78dc05f8b4c7c6ee685f91df2ddc5.pnj" /> </p>
 <p align="center">⊹₊° ― Thanks for reading! °₊⊹</p></div>
 <p align="center"> <img src="https://media1.tenor.com/m/-H_uo2Etod0AAAAd/horse-run.gif"/> </p>
