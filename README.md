@@ -30,7 +30,6 @@
 <p style=""><span>╰☆</span> <strong><em>I felt like I needed to add this,</em></strong> but if I haven't responded to your compliment, I'm either flustered or just forgot! I never miss whispers, but I do have problems with remembering to reply. All of your kind words are very valuable to me. :)</p>
 <p style=""><span>╰☆</span> <strong><em>I don't FW people sitting near me</em></strong> unless I have "c+h" in the name or you're my friend. I'm not gonna make a fuss about it, but I will hide you.</p>
 <p style=""><span>╰☆</span> <strong><em>Don't like me?</em></strong> Block and move on. Don't bother, I really don't care why you dislike me, or that you do at all.</p>
-<p style=""><span>╰☆</span> <strong><em>"Fiction affects reality"</em></strong> go read a book about a smart guy who thinks then.</p>
 <p style=""><span>╰☆</span> <strong><em>I'm anti harassment.</em></strong> Being nice or able to move on makes your life easier. Educate yourselves before harassing others for fiction.</em>
   <p align="center"><em>If something, this page will be expanded.</em>
 <p align="center"> <img src="https://64.media.tumblr.com/ee93fbf17ce48e23aef3928a2b801a44/91cd9f8a617cc37f-c4/s2048x3072/caec05e6a2c78dc05f8b4c7c6ee685f91df2ddc5.pnj" /> </p>
