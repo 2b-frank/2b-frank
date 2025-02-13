@@ -15,9 +15,9 @@
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/2ca023e483677345a8ebc80395317a78/91cd9f8a617cc37f-09/s2048x3072/6e3192184611e80d82519ac966cb20c2e0dff7dd.pnj" /> </p>
 <p style=""><span>╰☆</span> <strong><em>DNI:</em></strong> </p>
-<ul><li><p style="">none!</li></ul>
-<p style=""><em>I hide freely, it's absolutely nothing personal. It's temporary more often than not, and lasts up to a day. If it isn't, I won't unhide you LOL</em></p>
-<p style=""><em>Respect your own DNI tho.</em></p>
+<ul><li><p style="">stupid people /j</li></ul>
+<p style=""><em>Obviously I don't have an actual DNI. I choose to ridicule people or hide them freely /lh. It's temporary more often than not, and lasts up to a day. If it isn't, I won't unhide you LOL</em></p>
+<p style=""><em>Read further and respect your own DNI.</em></p>
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/2ca023e483677345a8ebc80395317a78/91cd9f8a617cc37f-09/s2048x3072/6e3192184611e80d82519ac966cb20c2e0dff7dd.pnj" /> </p>
 <p style=""><span>╰☆</span> <strong><em>I felt like I needed to add this,</em></strong> but if I haven't responded to your compliment, I'm either flustered or just forgot! I never miss whispers, but I do have problems with remembering to reply. All of your kind words are very valuable to me. :)</p>
@@ -26,7 +26,7 @@
 <p align="center"> <img src="https://64.media.tumblr.com/2ca023e483677345a8ebc80395317a78/91cd9f8a617cc37f-09/s2048x3072/6e3192184611e80d82519ac966cb20c2e0dff7dd.pnj" /> </p>
 <p style=""><span>╰☆</span> <strong><em>Main interests</strong>(current strong interests are <strong>in bold</strong>)<strong>:</strong></em></p>
 <ul><li><p style=""><em><strong>Music</strong></em>: My Chemical Romance, <strong>Twenty One Pilots</strong>, Hollywood Undead, Bring Me the Horizon, Machine Gun Kelly, Eminem, Yungblud, DK... <em>but I can listen to basically anything :3</em></p></li>
-<li><p style=""><em><strong>Games</strong></em>: <strong>FNaF series <em>(Clickteam era)</em></strong>, Watch Dogs 1 and 2 <em>(Legacy doesn't exist to me)</em>, Rain World <em>(+ Downpour)</em>, Ultrakill, FAITH, Honkai: Star Rail <em>(don't ask about Genshin)</em>, Cult of the Lamb, Stardew Valley and Team Fortress 2 <em>(former Scout main)</em>!</p></li>
+<li><p style=""><em><strong>Games</strong></em>: <strong>FNaF series <em>(Clickteam era)</em></strong>, Watch Dogs 1 and 2 <em>(Legacy doesn't exist to me)</em>, Rain World <em>(+ Downpour)</em>, Ultrakill, FAITH, Honkai: Star Rail <em>(don't ask about Genshin)</em>, Cult of the Lamb, Stardew Valley, Creatures of Sonaria and Team Fortress 2 <em>(former Scout main)</em>!</p></li>
 <li><p style=""><em><strong>Series, LPs, Podcasts</strong></em>: Mystery Skulls Animated, <strong>MrLololoshka's Minecraft series</strong>, Welcome to Night Vale, Sherlock Holmes <em>(BBC and Soviet series)</em>, Spooky Month, Eddsworld, Gravity Falls, The Walten Files!</p></li>
 <li><p style=""><em><strong>Other media</strong></em>: The True Lives of the Fabulous Killjoys <em>(California + National Anthem)</em>, Land of Lustrous <em>(manga)</em>!</p></li></ul>
 <p style=""></p>
