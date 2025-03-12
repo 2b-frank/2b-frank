@@ -15,8 +15,8 @@
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/2ca023e483677345a8ebc80395317a78/91cd9f8a617cc37f-09/s2048x3072/6e3192184611e80d82519ac966cb20c2e0dff7dd.pnj" /> </p>
 <p style=""><span>╰☆</span> <strong><em>DNI:</em></strong> </p>
-<ul><li><p style="">stupid people /j</li></ul>
-<p style=""><em>Obviously I don't have an actual DNI. I choose to ridicule people or hide them freely /lh. It's temporary more often than not, and lasts up to a day. If it isn't, I won't unhide you LOL</em></p>
+<ul><li><p style="">people that have DNI lists /j</li></ul>
+<p style=""><em>Obviously I don't have an actual one – I'm of the opinion that the DNI lists of today are inherently hostile and are made to publicly shame groups of people, or state painfully obvious things- like, believe me, no sane person wants to touch a transphobe. I choose to ridicule people or hide them freely /lh. It's temporary more often than not, and lasts up to a day. If it isn't, I won't unhide you LOL</em></p>
 <p style=""><em>Respect your own DNI.</em></p>
 <p style=""></p>
 <p align="center"> <img src="https://64.media.tumblr.com/2ca023e483677345a8ebc80395317a78/91cd9f8a617cc37f-09/s2048x3072/6e3192184611e80d82519ac966cb20c2e0dff7dd.pnj" /> </p>
