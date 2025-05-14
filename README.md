@@ -1,7 +1,6 @@
 <p align="center"> <img src="https://media1.tenor.com/m/CxG-dvj9VJgAAAAC/roblox-pressure-pressure-roblox.gif"/> </p>
 <p style=""></p>
-<div class="sc-1ye87qi-0 bCBphS"><p align="center">⊹₊° ― Hello there! My name is Frankie! °₊⊹</p>
-<p align="center">｡◈ I go by any pronouns :3 <span>◈｡˚</span></p>    
+<div class="sc-1ye87qi-0 bCBphS"><p align="center">⊹₊° ― Name's Frankie! Any pronouns. °₊⊹</p> 
 <div class="sc-1ye87qi-0 bCBphS"><p align="center">⊹₊ <em>I am a legal adult, please interact in EN/DEU/RU</em> ₊⊹</p>
 <p style=""><em>This page is Pony.town specific!</em></p>
 <p style=""></p><p style=""><strong><span>╰☆</span> <em>Pony Town statuses/icons:</em></strong></p>
