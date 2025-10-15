@@ -10,6 +10,7 @@
 <li><p style=""><span>ᶻ 𝗓 𐰁</span> If my avatar is asleep, that means I'm AFK. Better to send whispers, I might miss your normal messages!</p><p style=""></p></li></ul>
   <p style=""></p>
   <p align="center"><strong>I don't like 99.9% of the fandoms I'm technically a part of. If I don't acknowledge you approaching me, that's most likely why. Most of the time I just hang out with my friends in skins of characters I like, and have no interest in interacting with fandom mates.</strong></p>
+  <p align="center"><strong>If you for some reason care about my fiction discourse stance: IDGAF what your tastes are, bullying people is bad. I'm employed and live under heavy censorship and technically a criminal for the fact of being gay btw.</strong></p>
 <p style=""></p>
-<p align="center">⊹₊° For more about me personally, check out https://2bfrnk.straw.page ! TW: BLOOD AND MILD FLASHING °₊⊹</p></div>
+<p align="center">⊹₊° For more about me personally, check out https://2b-frank.straw.page ! TW: BLOOD AND MILD FLASHING °₊⊹</p></div>
 <p align="center"><img src="https://visit-counter.vercel.app/counter.png?page=https%3A%2F%2Fgithub.com%2F2b-frank&s=20&c=ff0000&bg=00000000&no=5&ff=electrolize&tb=&ta=+people+saw+my+shit" alt="visits">
